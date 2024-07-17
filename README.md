@@ -2,9 +2,10 @@
 - 👀 I’m interested in App Development and Graphics Design
 - 💞️ I’m looking to collaborate on projects that relate with medical issues to solving problems.
 - 📫 You can contact me on
-    • Telegram at @thattallguyinclass
-    • Instagram at @leti.psd or @letitamrat
-    • Email me at letitamrat@gmail.com
+    • Telegram at:
+            https://t.me/thattallguyinclass
+    • Email me at:
+            letitamrat@gmail.com
 
 - Also you can check out my ✨ Design Portfolio here: https://www.behance.net/letitamrat
 
